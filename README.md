@@ -1,2 +1,2 @@
-# leahcimzil.github.io
+# leahcimzil.github.io/pixel
 
